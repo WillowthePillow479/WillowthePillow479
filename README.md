@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @WillowthePillow479
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning coding, animation, game design
+- 💞️ I’m looking to collaborate on game making or helping with coding
+- 📫 How to reach me Lanenaena@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: Im a minor and entering coding middle school!
+- I touch grass.
+- I am a content creator.
